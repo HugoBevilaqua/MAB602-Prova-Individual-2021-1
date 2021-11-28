@@ -1,1 +1,0 @@
-# MAB602-Prova-Individual-2021-1
